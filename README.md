@@ -5,10 +5,13 @@
 <div> <img align="left" src="https://github.com/user-attachments/assets/51824bec-800a-4d5e-a2c2-8ad2c91f77bd" width="649">
 <h1 style="font-size: 2.5em;">
 <details>
-<summary>hi</summary>
-Extra text here...
+<summary>BYF</summary>
+Hello! I'm Natty or Adele. I'm 18, Iwcuf always <3 Happily taken. Do not flirt unless close friends okay? C*H enc unless I'm on DNI!
 </details>
+
 <br clear="left"> 
 
 
-WIP ik im a chud.
+wip
+
+
