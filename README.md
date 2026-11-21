@@ -4,5 +4,3 @@
 
 <div> <img align="left" src="https://github.com/user-attachments/assets/51824bec-800a-4d5e-a2c2-8ad2c91f77bd" width="449">
 
-wip.
-
