@@ -8,6 +8,6 @@
 
 　　 　　　 　　　 ˳ᴗ ᴗ)　　　　8teen years.　　ㅤㅤㅤᚐ
 
-　　 　　　 　૮꒰ྀི Pansex, Panprono, Genderflu, Demisex. ꒱ྀིა
+　　 　　　 　૮꒰ྀི Happily taken. Pls do not flirt.  ꒱ྀིა
 
 　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
