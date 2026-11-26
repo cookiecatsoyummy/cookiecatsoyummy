@@ -13,5 +13,10 @@
 <div>
 <details>
 <summary>BYF.</summary>
-I am very clingy, or just will avoid u at all cost. I can be annoying, I have ADHD. Plus I am pretty sensitive. Getting bothered easily as well, I can be a pretty dry texter most of the time, and u will get signs if I clearly dislike you.
+I am very clingy, or just will avoid u at all cost. I can be annoying, I have ADHD. Plus I am pretty sensitive. Getting bothered easily as well, I can be a pretty dry texter most of the time, and u will get signs if I clearly dislike you. </div>
 
+
+ 
+ 
+ <img align="center" src="https://github.com/user-attachments/assets/8cb8af1c-187f-4a58-8726-9fbcc0b857c5" alt="Untitled Design (1) (1)" width="500" />
+ 
