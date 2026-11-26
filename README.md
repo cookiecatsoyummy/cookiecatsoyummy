@@ -9,8 +9,9 @@
 　　 　　　 　　　 ˳ᴗ ᴗ)　　　　8teen years.　　ㅤㅤㅤᚐ
 
 　　 　　　 　૮꒰ྀི Happily taken. Pls do not flirt.  ꒱ྀིა
-        <img align="right" src="https://github.com/user-attachments/assets/22a8af17-7594-4119-830c-1a2f85f6abea" alt="Untitled Design" width="288" />
+        <img align="right" src="https://github.com/user-attachments/assets/e674bf12-93a2-4de0-aca0-c8825e3f630f" alt="Untitled Design (2)" width="288" />
 <div>
 <details>
 <summary>BYF.</summary>
 I am very clingy, or just will avoid u at all cost. I can be annoying, I have ADHD. Plus I am pretty sensitive. Getting bothered easily as well, I can be a pretty dry texter most of the time, and u will get signs if I clearly dislike you.
+
