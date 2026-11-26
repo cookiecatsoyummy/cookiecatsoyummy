@@ -9,6 +9,4 @@
 　　 　　　 　　　 ˳ᴗ ᴗ)　　　　8teen years.　　ㅤㅤㅤᚐ
 
 　　 　　　 　૮꒰ྀི Happily taken. Pls do not flirt.  ꒱ྀིა
-
-　　 　　　 　　　 　　　 　𓎢𓎟𓎟𓎡
 <img align="right" src="https://github.com/user-attachments/assets/c3a74bb9-0b19-4d4f-9ce7-c21e314bfbbf" alt="Untitled Design (1) (1)" width="390" />
